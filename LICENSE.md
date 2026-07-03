@@ -1,4 +1,4 @@
-#  
+#  catch and tame instant Script is the best catch and tame Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
